@@ -1,0 +1,1 @@
+# distribution-of-wages-from-gdp
